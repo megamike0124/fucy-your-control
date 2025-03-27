@@ -1,2 +1,2 @@
-# fucy-your-control
+# fuck-your-control
 breaking the chain
